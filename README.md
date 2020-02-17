@@ -1,2 +1,2 @@
-# Webhook your mom gay
+# Webhook
 Bruh momento
